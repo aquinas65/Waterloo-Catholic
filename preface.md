@@ -17,3 +17,4 @@ One of the difficulties when dealing with the sober circumstances of life in a n
 The book is interesting and scholarly from cover to cover and is fall of reliable information from the pen of a writer, whose intimate familiarity with local documentary history and with many of the estimable characters introduced to the readers, deepens the fascination of its pages.
 
 It is an admirable undertaking carried out in an admirable way and, independently of its intrinsic worth, its fine type, paper and binding, is a triumph of the art of photogravure illustration.
+
